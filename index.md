@@ -1,1 +1,1 @@
-![test ](https://github.com/SinhaSaptarshi/sinhasaptarshi.github.io/blob/master/DSC_5798%20.jpg?raw=true){:height="50%" width="50%"}
+![test](https://github.com/SinhaSaptarshi/sinhasaptarshi.github.io/blob/master/DSC_5798%20.jpg?raw=true)
