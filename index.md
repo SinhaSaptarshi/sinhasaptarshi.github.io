@@ -1,1 +1,1 @@
-![](https://github.com/SinhaSaptarshi/sinhasaptarshi.github.io/blob/master/DSC_5798%20.jpg?raw=true =250x250)
+![](https://github.com/SinhaSaptarshi/sinhasaptarshi.github.io/blob/master/DSC_5798%20.jpg?raw=true)
